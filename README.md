@@ -1,2 +1,0 @@
-# AccuKnox_Assignment
- 
